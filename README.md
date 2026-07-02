@@ -1,16 +1,10 @@
-## Hi there 👋
-
-<!--
-**seedcrt/seedcrt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  ❀
+<p align="center">
+you  '  re  in  my  dreams,  stange  powers!
+  
+<a href="https://ibb.co/NQM7LhK"><img src="https://i.ibb.co/Qz4X6BM/Untitled692-20260702141014.png" alt="Untitled692-20260702141014" border="0"></a>
+<p align="center">
+<p align="center">
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/R4CRqWrW/stamp.png" alt="stamp" border="0"></a>
+<p align="center">
